@@ -8,3 +8,6 @@ I'm here to be teached
 I want all the code to be reached 
 
 lol noob
+
+stfu
+
